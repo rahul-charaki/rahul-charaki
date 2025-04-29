@@ -40,7 +40,7 @@
 
 ## 📫 Let's Connect!
 - Email: charakirahul@gmail.com
-- LinkedIn: [Rahul_Charaki](https://www.linkedin.com/in/rahul-charaki)
+- LinkedIn: [Rahul_Charaki](https://www.linkedin.com/in/rahul-charaki-a54406259/)
 
 ---
 _Always eager to learn, build, and grow!_
